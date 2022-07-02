@@ -7,7 +7,7 @@
 <!-- - 👯 I’m looking to collaborate on ... -->
 <!-- - 🤔 I’m looking for help with ... -->
 <!-- - 💬 Ask me about ... -->
-- 📫 How to reach me: linkedin- Thisara Chandrawansa Email-chandrawanshathisara@gmail.com
+- 📫 How to reach me: Linkedin- Thisara Chandrawansa , Email- chandrawanshathisara@gmail.com
 <!-- - 😄 Pronouns: ...  
 - ⚡ Fun fact: ... -->
  
